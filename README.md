@@ -1,2 +1,2 @@
 ## 👨‍💻 projetos-Faculdade
-# Apenas trabalhose projetos simples ✔
+# Apenas trabalhos e projetos simples ✔
